@@ -1,0 +1,39 @@
+---
+Title: Heim
+Description: Velkommen til TAKk og DNM95 sitt jubileum i 2025
+Date: 2025
+Template: index
+---
+
+# Velkommen til jubileum!
+
+Tromsø Akademiske Kvinnekor fyller 15 år og Det Norske Mannskor av 1995 – Tromsøs studentsangere fyller 30 år i år. Det fortener ei ordentleg feiring!
+
+**Når?** 21.–23. mars 2025
+
+**Kvar?** I Tromsø
+
+
+## Program
+
+### Fredag
+- **18:00–19:30** Byvandring gaida av Per Helge Nylund. Startar på [Skansen](https://maps.app.goo.gl/W7dVzp9ijoBYz98VA).
+- **20:00–02:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/oJdiQdtTf4mZf3FE6).
+
+### Laurdag
+- **12:00–14:00** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. I [Grønnåsen kirke](https://maps.app.goo.gl/dNJXiKsUZNdikSKv7).
+- **14:00–14:30** Solemn akt i Grønnåsen kirke.
+- **14:30** Dørene opnar til jubileumskonserten.
+- **15:00** Jubileumskonsert i Grønnåsen kirke.
+- **16:45** Vi reiser i felles bussar til [Tromsø Maritime](https://maps.app.goo.gl/sQfVfrJn3JKC8wpJ8), der gallamiddagen finn stad.
+- **17:00** Velkomst og mingling i festlokalet.
+- **18:00** Treretters middag.
+- **ca. 21:30/22:00** Bandet kjem på og dansen byrjar.
+
+### Natt til sundag
+- **ca. 01:00–06:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/sQfVfrJn3JKC8wpJ8).
+- **05:00?** Psildefrukost i Pengebingen.
+
+## Musikalsk program
+
+TBA
