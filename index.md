@@ -44,3 +44,7 @@ TBA
 
 Dei som har fått plass på hotellrom ordna av oss, skal ha fått ein e-post med informasjon om dette. Ta [kontakt](/kontakt) om du er usikker. Alle andre må ordne seg overnatting sjølve.
 
+## Takk
+
+Takk til sponsorane våre: Hovudsponsor **UiT – Noregs arktiske universitet**, og dei øvrige sponsorane **Odd Berg Gruppen** og **Coop Obs! Tromsø**.
+
