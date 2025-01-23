@@ -8,3 +8,7 @@ E-post: [jubileum@dnm95.no](mailto:jubileum@dnm95.no) og [jubileum@takk.tromso.n
 Facebook: [DNM95](https://facebook.com/dnm95) [TAKk](https://www.facebook.com/TromsoAkademiskeKvinnekor)
 
 Instagram: [@dnm95](https://www.instagram.com/dnm95/) [@takk.tromso](https://www.instagram.com/takk.tromso)
+
+## Toastmasterar
+
+Toastmasterar er Anette Ulriksen og Bror-Magnus S. Strand. Dei kan nås på [toastmaster@dnm95.no](mailto:toastmaster@dnm95.no)
