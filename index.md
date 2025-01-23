@@ -7,7 +7,7 @@ Template: index
 
 # Velkommen til jubileum!
 
-Tromsø Akademiske Kvinnekor fyller 15 år og Det Norske Mannskor av 1995 – Tromsøs studentsangere fyller 30 år i år. Det fortener ei ordentleg feiring!
+**Tromsø Akademiske Kvinnekor** fyller 15 år og **Det Norske Mannskor av 1995 – Tromsøs studentsangere** fyller 30 år i år. Det fortener ei ordentleg feiring!
 
 **Når?** 21.–23. mars 2025
 
@@ -21,8 +21,9 @@ Tromsø Akademiske Kvinnekor fyller 15 år og Det Norske Mannskor av 1995 – Tr
 - **20:00–02:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/oJdiQdtTf4mZf3FE6).
 
 ### Laurdag
-- **12:00–14:00** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. I [Grønnåsen kirke](https://maps.app.goo.gl/dNJXiKsUZNdikSKv7).
-- **14:00–14:30** Solemn akt i Grønnåsen kirke.
+- **12:00–13:30** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. Øvinga blir på UiT.
+- **13:30** Vi går til Grønnåsen kirke.
+- **14:00–14:30** Solemn akt i [Grønnåsen kirke](https://maps.app.goo.gl/dNJXiKsUZNdikSKv7).
 - **14:30** Dørene opnar til jubileumskonserten.
 - **15:00** Jubileumskonsert i Grønnåsen kirke.
 - **16:45** Vi reiser i felles bussar til [Tromsø Maritime](https://maps.app.goo.gl/sQfVfrJn3JKC8wpJ8), der gallamiddagen finn stad.
@@ -37,3 +38,8 @@ Tromsø Akademiske Kvinnekor fyller 15 år og Det Norske Mannskor av 1995 – Tr
 ## Musikalsk program
 
 TBA
+
+## Overnatting
+
+Dei som har fått plass på hotellrom ordna av oss, skal ha fått ein e-post med informasjon om dette. Ta [kontakt](/kontakt) om du er usikker. Alle andre må ordne seg overnatting sjølve.
+
