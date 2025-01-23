@@ -29,6 +29,7 @@ Template: index
 - **16:45** Vi reiser i felles bussar til [Tromsø Maritime](https://maps.app.goo.gl/sQfVfrJn3JKC8wpJ8), der gallamiddagen finn stad.
 - **17:00** Velkomst og mingling i festlokalet.
 - **18:00** Treretters middag.
+  - Om du vil seia noko under middagen, ta kontakt med toastmasterane på [toastmaster@dnm95.no](mailto:toastmaster@dnm95.no). Anette Ulriksen og Bror-Magnus Strand er toastmasterar.
 - **ca. 21:30/22:00** Bandet kjem på og dansen byrjar.
 
 ### Natt til sundag
