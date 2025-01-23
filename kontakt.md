@@ -11,4 +11,4 @@ Instagram: [@dnm95](https://www.instagram.com/dnm95/) [@takk.tromso](https://www
 
 ## Toastmasterar
 
-Toastmasterar er Anette Ulriksen og Bror-Magnus S. Strand. Dei kan nås på [toastmaster@dnm95.no](mailto:toastmaster@dnm95.no)
+Toastmasterar er Anette Ulriksen og Bror-Magnus S. Strand. Dei kan nåast på [toastmaster@dnm95.no](mailto:toastmaster@dnm95.no)
