@@ -33,7 +33,8 @@ Template: index
 - **ca. 21:30/22:00** Bandet kjem på og dansen byrjar.
 
 ### Natt til sundag
-- **ca. 01:00–06:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/sQfVfrJn3JKC8wpJ8).
+- **ca. 01:30–06:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/sQfVfrJn3JKC8wpJ8).
+  - Det blir organisert buss frå gallalokalet til nachlokalet med avgang rundt 01:30.
 - **05:00?** Psildefrukost i Pengebingen.
 
 ## Musikalsk program
