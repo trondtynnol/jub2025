@@ -42,7 +42,7 @@ Template: index
 Vi inviterer dei syngane gjestene våre til å vera med på nokre songar på jubileumskonserten. Det blir desse songane:
 - Felles: Sangerhilsen
 - Mannskor: Tromsøsangen, Olav Tryggvason
-- Kvinnekor: Fyllepolskan, Alle mann hadde fota
+- Kvinnekor: Havsalme, Alle mann hadde fota
 
 ## Overnatting
 
