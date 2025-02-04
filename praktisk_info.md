@@ -1,3 +1,7 @@
+---
+Title: Praktisk info
+Date: 2025
+---
 # Informasjon om Tromsø – Smart fra start
 ## Hvordan kommer jeg meg fra flyplassen og til sentrum?
 Tromsø er en liten by og avstandene er ikke så veldig store. Fra flyplassen har du flere valgmuligheter alt ettersom hvor mye tid du vil bruke eller hvor mye penger du vil bruke. Det går rutebusser forbi flyplassen som ender opp i sentrum. The answer is rute 24, 26, 40 og 42. Busstoppen er lokalisert ca 3 minutter gange fra flyplassen. Ta trappene (eller heisen) ned til parkeringen og gå gjennom parkeringsplassen. Når du kommer ut på andre siden har du riktig busstopp på motsatt side av veien. Billetten koster 44 kroner dersom du laster ned appen «Entur». Det er også mulig å betale cash på bussen, men da vil det koste mer. Appen anbefales dog på det sterkeste. Turen vil ta i underkant av 30 min - så fremst det ikke er hålkeføre (glatt og is) og trafikkaos, men det kan jo også anses som en eksotisk opplevelse bare det.
