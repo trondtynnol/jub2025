@@ -46,8 +46,11 @@ Vi inviterer dei syngande gjestene våre til å vera med på nokre songar på ju
 - Felles: Sangerhilsen
 - Mannskor: Tromsøsangen, Olav Tryggvason
 - Kvinnekor: Havsalme, Alle mann hadde fota
+
 Noter kvinnekor: [lenke](https://uitno.box.com/s/yao2g933mm0j4l4jf5hgrl472xxbbf40)
+
 Noter mannskor: 
+
 Alle som skal vera med og synge på konsert, **må** vera med på fellesøving på laurdag.
 
 ## Overnatting
