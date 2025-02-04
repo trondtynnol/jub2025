@@ -16,11 +16,11 @@ Template: index
 
 ## Program
 ### Torsdag
-- **21:15–** Uformell samling for dei som har kome tidleg til byen. Stad: Korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), Storgata 8 (inngang frå Peder Hansens gate / den oransje gangen)
+- **21:15–** Uformell samling for dei som har kome tidleg til byen. Stad: Korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), Storgata 8 (inngang frå Peder Hansens gate / den oransje gangen).
 
 ### Fredag
 - **18:00–19:30** Byvandring gaida av Per Helge Nylund. Startar på [Skansen](https://maps.app.goo.gl/W7dVzp9ijoBYz98VA).
-- **20:00–02:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/oJdiQdtTf4mZf3FE6).
+- **19:00–02:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/oJdiQdtTf4mZf3FE6).
 
 ### Laurdag
 - **ca. 10:00–13:00** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. Øvinga blir på UiT.
