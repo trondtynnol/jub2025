@@ -61,6 +61,8 @@ Dei som har fått plass på hotellrom ordna av oss, skal ha fått ein e-post med
 
 Eigenandelen dekkjer gaida byvandring og inngang på songarpub på fredag; konsert, gallamiddag og fest på laurdag; og nachspiel og psildefrukost natt til sundag. Du vil få tilsendt faktura på e-post. Dei som har bestilt vinpakke til middagen og/eller overnatting, vil bli fakturert for dette samstundes.
 
+Gallalokalet har spytillegg på 1 500 kr: Drikk med måte så du slepp å måtte betale det.
+
 ## Takk
 
 Takk til sponsorane våre: Hovudsponsor **UiT – Noregs arktiske universitet**, og dei øvrige sponsorane **Odd Berg Gruppen** og **Coop Obs! Tromsø**.
