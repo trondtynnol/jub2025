@@ -58,9 +58,7 @@ Dei som har fått plass på hotellrom ordna av oss, skal ha fått ein e-post med
 
 Takk til sponsorane våre: Hovudsponsor **UiT – Noregs arktiske universitet**, og dei øvrige sponsorane **Odd Berg Gruppen** og **Coop Obs! Tromsø**.
 
-![image](../assets/Odd-Berg-logo-horizontal-blå.eps)
-
-![image](../assets/logo.jpg)
+![image](../assets/Odd_Berg.jpg)
 
 Takk også til alle som har bidrege til å gjennomføre jubileet, og til alle dykk som kjem reisande langt for å vera med og feire med oss!
 
