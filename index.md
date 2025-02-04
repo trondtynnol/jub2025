@@ -16,7 +16,7 @@ Template: index
 
 ## Program
 ### Torsdag
-- **21:15–** Uformell samling for dei som har kome tidleg til byen. Stad: Korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), Storgata 8 (inngang frå Peder Hansens gate / den oransje gangen).
+- **21:15–** Uformell samling for dei som har kome tidleg til byen. Stad: Korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), inngang frå Peder Hansens gate 4 (den oransje gangen).
 
 ### Fredag
 - **18:00–19:30** Byvandring gaida av Per Helge Nylund. Startar på [Skansen](https://maps.app.goo.gl/W7dVzp9ijoBYz98VA).
@@ -35,7 +35,7 @@ Template: index
 - **ca. 21:30/22:00** Bandet kjem på og dansen byrjar.
 
 ### Natt til sundag
-- **ca. 02:00–06:00** Songarpub/Nachspiel på korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), Storgata 8 (inngang frå Peder Hansens gate / den oransje gangen)
+- **ca. 02:00–06:00** Songarpub/Nachspiel på korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), inngang frå Peder Hansens gate 4 (den oransje gangen).
   - Det blir organisert buss frå gallalokalet til nachlokalet med avgang rundt 02:00.
 - **ca. 04:00** Psildefrukost i Samfunnskjellaren.
 - **06:00** Festen er over, sjølv om det skulle vera kake igjen. Gå heim og sov.
