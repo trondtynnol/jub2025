@@ -49,7 +49,7 @@ Vi inviterer dei syngande gjestene våre til å vera med på nokre songar på ju
 
 Noter kvinnekor: [lenke](https://uitno.box.com/s/yao2g933mm0j4l4jf5hgrl472xxbbf40)
 
-Noter mannskor: kjem snart!
+Noter mannskor: [lenke](https://dnm95-my.sharepoint.com/:f:/g/personal/jubileum_dnm95_no/Emq08FYWlBNKqt20ameUjwgBPrCVtVXrRBXfih0w8_w8gw?e=YdcLnu) (bruk ikognitomodus om du har problem med at du er logga på ein annan Microsoft-konto)
 
 Alle som skal vera med og synge på konsert, **må** vera med på fellesøving på laurdag.
 
