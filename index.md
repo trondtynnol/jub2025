@@ -60,5 +60,7 @@ Takk til sponsorane våre: Hovudsponsor **UiT – Noregs arktiske universitet**,
 
 ![image](../assets/Odd-Berg-logo-horizontal-blå.eps)
 
+![image](../assets/logo.jpg)
+
 Takk også til alle som har bidrege til å gjennomføre jubileet, og til alle dykk som kjem reisande langt for å vera med og feire med oss!
 
