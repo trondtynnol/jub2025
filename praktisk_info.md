@@ -39,4 +39,6 @@ Grønnåsen kirke ligger nord på Tromsøen. Hit kan den lokale rute 24 svippe d
 
 ## Antrekk/bekledning
 
-Kleskode for jubileumskonsert og påfølgende gallamiddag er (trommevirvel) galla. Dvs. kjole og hvitt – sekundært ditt beste kveldsantrekk – for herrer, og gallakjole for damer. Alle kormedaljer, utmerkelser og annen bling må gjerne benyttes – for aktive sangere i DNM95 og TAKk dog først etter konserten.
+Kleskode for jubileumskonsert og påfølgende gallamiddag er (trommevirvel) galla. Dvs. kjole og hvitt for herrer og gallakjole for damer – sekundært ditt beste kveldsantrekk. Alle kormedaljer, utmerkelser og annen bling må gjerne benyttes – for aktive sangere i DNM95 og TAKk dog først etter konserten.
+
+Kle deg ellers etter været. I Tromsø kan det være vindfullt, nedbør av alle slag og speilblank hålke – men også solskinn og nydelig utsikt. Sjekk [værmeldinga](https://www.yr.no/nb/v%C3%A6rvarsel/daglig-tabell/1-305409/Norge/Troms/Troms%C3%B8/Troms%C3%B8).
