@@ -14,7 +14,7 @@ Template: index
 **Kvar?** I Tromsø
 
 ## Praktisk info
-Meir praktisk info og detaljert program finn de under [Praktisk info](/praktisk_info).
+Meir praktisk info finn de under [Praktisk info](/praktisk_info).
 
 ## Program
 ### Torsdag
