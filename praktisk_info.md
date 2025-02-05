@@ -36,3 +36,7 @@ For de som ikke tar festen helt ut på fredag og må sove forbi frokosten på l�
 ## Konsertlokalet - Grønnåsen kirke 
 
 Grønnåsen kirke ligger nord på Tromsøen. Hit kan den lokale rute 24 svippe deg til døra. Eller du kan ta rute 20 og flanellere fra busstoppet Templarheimen til kirka på ca. 7 minutter. Pass på å ta bussen i riktig retning slik at du ikke havner på fastlandet. 
+
+## Antrekk/bekledning
+
+Kleskode for jubileumskonsert og påfølgende gallamiddag er (trommevirvel) galla. Dvs. kjole og hvitt – sekundært ditt beste kveldsantrekk – for herrer, og gallakjole for damer. Alle kormedaljer, utmerkelser og annen bling må gjerne benyttes – for aktive sangere i DNM95 og TAKk dog først etter konserten.
