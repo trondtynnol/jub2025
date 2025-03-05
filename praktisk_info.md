@@ -44,3 +44,9 @@ Kleskode for jubileumskonsert og påfølgende gallamiddag er (trommevirvel) gall
 Kledkoden for sangerpub på fredag er smart casual.
 
 Kle deg ellers etter været. I Tromsø kan det være vindfullt, nedbør av alle slag og speilblank hålke – men også solskinn og nydelig utsikt. Sjekk [værmeldinga](https://www.yr.no/nb/v%C3%A6rvarsel/daglig-tabell/1-305409/Norge/Troms/Troms%C3%B8/Troms%C3%B8).
+
+## Betale for drikkevarer under arrangementet
+
+Det er skjenkebevilling både på sangerpub i Pengebingen på fredag, og i gallalokalet på lørdag, og man kan altså ikke ta med egen alkohol. 
+- I Pengebingen står driverne av lokalet for serveringa, og man kan betale med kort eller Vipps. 
+- I gallalokalet på lørdag og på etterfesten natt til søndag er valutaen Den Norske Drikkepenge, som kan kjøpes på Vipps fra **Det Norske Øllefond (#591428)**. Finske 🇫🇮 gjester kan betale til Vipps-kontoen med MobilePay. Svenske 🇸🇪 gjester kan laste ned Vipps-appen (Swish fungerer ikke i Norge). Den Norske Drikkepenge er fysisk, så vent med å kjøpe til du står i kassa og kan hente ut det du kjøper.
