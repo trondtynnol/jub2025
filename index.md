@@ -16,6 +16,11 @@ Template: index
 ## Praktisk info
 Meir praktisk info finn de under [Praktisk info](/praktisk_info).
 
+## Discord
+Vi har ein Discord-server! Bli med: https://discord.gg/nDnmGaZH
+
+Her kan ein spørja om stort og smått før og under jubileet, eller berre glede seg glugg i hel!
+
 ## Program
 ### Torsdag
 - **21:15–** Uformell samling for dei som har kome tidleg til byen. Stad: Korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), inngang frå Peder Hansens gate 4 (den oransje gangen).
