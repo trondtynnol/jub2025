@@ -30,8 +30,16 @@ Her kan ein spørja om stort og smått før og under jubileet, eller berre glede
 - **19:00–02:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/oJdiQdtTf4mZf3FE6).
 
 ### Laurdag
-- **ca. 10:00–13:00** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. Øvinga blir på UiT.
-- **ca. 13:00** Vi går til Grønnåsen kirke. Det blir høve til å skifte til konsert-/gallaantrekk.
+- **Føremiddagen** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. Øvinga blir på [UiT](https://maps.app.goo.gl/SsYw3dX3eArLSyFu8).
+  - **10:00 presis** Oppmøte for DNM95, TAKk, TAKk alumni og andre tilreisande kvinnesongarar.
+  - **12:00 presis** Oppmøte for DNM95 alumni og andre tilreisande mannssongarar.
+  - Plan:
+    - **10:00** Felles oppvarming i [Auditorium 2](https://link.mazemap.com/zsiC6bkA). Kvinnene øver på *Havsalme* og *Alle mann hadde fota* med Alejandro.
+    - **10:30-11:00** DNM95 øver på *Kung Liljekonvalje* med Hanne-Sofie i [Auditorium 1](https://link.mazemap.com/pgCEfvHi).
+    - **11:00-12:00** DNM95 og TAKk øver på *Even when he's silent* med Bjarne i [Auditorium 2](https://link.mazemap.com/zsiC6bkA).
+    - **12:00-12:30** Alle øver på *Sangerhilsen* med Alejandro i [Auditorium 2](https://link.mazemap.com/zsiC6bkA.)
+    - **12:30-13:20** Mennene øver på *Tromsøsangen og Olav Trygvason* med Alejandro i [Auditorium 2](https://link.mazemap.com/zsiC6bkA).
+  - Etter øving går vi til Grønnåsen kirke. Det blir høve til å skifte til konsert-/gallaantrekk.
 - **14:00–14:30** Solemn akt i [Grønnåsen kirke](https://maps.app.goo.gl/dNJXiKsUZNdikSKv7).
 - **14:30** Dørene opnar til jubileumskonserten.
 - **15:00** Jubileumskonsert i Grønnåsen kirke.
