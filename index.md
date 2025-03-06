@@ -30,7 +30,7 @@ Her kan ein spørja om stort og smått før og under jubileet, eller berre glede
 - **19:00–02:00** Songarpub i [Pengebingen på Sørsjeteen](https://maps.app.goo.gl/oJdiQdtTf4mZf3FE6).
 
 ### Laurdag
-- **Føremiddagen** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. Øvinga blir på [UiT](https://maps.app.goo.gl/SsYw3dX3eArLSyFu8).
+- **Føremiddagen** Fellesøving for **alle** som skal vera med og synge på jubileumskonserten. Øvinga blir på [UiT](https://maps.app.goo.gl/SsYw3dX3eArLSyFu8) (inngang ved Teorifagskafeen).
   - **10:00 presis** Oppmøte for DNM95, TAKk, TAKk alumni og andre tilreisande kvinnesongarar.
   - **12:00 presis** Oppmøte for DNM95 alumni og andre tilreisande mannssongarar.
   - Plan:
