@@ -17,7 +17,7 @@ Template: index
 Meir praktisk info finn de under [Praktisk info](/praktisk_info).
 
 ## Discord
-Vi har ein Discord-server! Bli med: https://discord.gg/nDnmGaZH
+Vi har ein Discord-server! Bli med: https://discord.gg/Bqw9DXcX
 
 Her kan ein spørja om stort og smått før og under jubileet, eller berre glede seg glugg i hel!
 
