@@ -88,7 +88,7 @@ Takk til sponsorane våre: Hovudsponsor **UiT – Noregs arktiske universitet**,
 
 ![Obs](../assets/Obs_logo_rgb.jpg)
 
-![Akademika](../assets/akademikalogo.png =x100)
+![Akademika](../assets/akademikalogo.png)
 
 Takk også til alle som har bidrege til å gjennomføre jubileet, og til alle dykk som kjem reisande langt for å vera med og feire med oss!
 
