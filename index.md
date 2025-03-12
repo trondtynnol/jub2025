@@ -54,6 +54,7 @@ Her kan ein spørja om stort og smått før og under jubileet, eller berre glede
 ### Natt til sundag
 - **ca. 02:00–06:00** Songarpub/Nachspiel på korhybelen til DNM95 og TAKk, Samfunnskjelleren (under Driv), inngang frå Peder Hansens gate 4 (den oransje gangen).
   - Det blir organisert buss frå gallalokalet til nachlokalet med avgang rundt 02:00.
+  - Det blir mogleg å kjøpe nattmat (festpølse) på nachspielet.
 - **ca. 04:00** Psildefrukost i Samfunnskjellaren.
 - **06:00** Festen er over, sjølv om det skulle vera kake igjen. Gå heim og sov.
 
