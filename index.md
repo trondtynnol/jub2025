@@ -16,6 +16,8 @@ Template: index
 ## Praktisk info
 Meir praktisk info finn de under [Praktisk info](/praktisk_info).
 
+**NB!** Hugs å bruke festivalarmbandet du får utdelt – det er inngangsbillett til alt som skjer frå og med songarpuben på fredag (songarpub, konsert, gallamiddag, nach, psillis). Armbanda og anna info og stæsj blir utdelt ved ankomst til songarpuben. Dei som eventuelt ikkje kjem dit, får det ved fyrste høve.
+
 ## Discord
 Vi har ein Discord-server! Bli med: https://discord.gg/Bqw9DXcX
 
