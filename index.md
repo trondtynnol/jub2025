@@ -80,13 +80,15 @@ Gallalokalet har spybot på 1 500 kr: Drikk med måte så du slepp å måtte bet
 
 ## Takk
 
-Takk til sponsorane våre: Hovudsponsor **UiT – Noregs arktiske universitet**, og dei øvrige sponsorane **Odd Berg Gruppen** og **Coop Obs! Tromsø**.
+Takk til sponsorane våre: Hovudsponsor **UiT – Noregs arktiske universitet**, og dei øvrige sponsorane **Odd Berg Gruppen**, **Coop Obs! Tromsø** og **Akademika**.
 
 ![UiT](../assets//UiT_Logo_Nyn_Bla_RGB.png)
 
 ![Odd Berg Gruppen](../assets/Odd_Berg.webp)
 
 ![Obs](../assets/Obs_logo_rgb.jpg)
+
+![Akademika](../assets/akademikalogo.png)
 
 Takk også til alle som har bidrege til å gjennomføre jubileet, og til alle dykk som kjem reisande langt for å vera med og feire med oss!
 
