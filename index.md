@@ -40,6 +40,7 @@ Her kan ein spørja om stort og smått før og under jubileet, eller berre glede
     - **10:30-11:00** DNM95 øver på *Kung Liljekonvalje* med Hanne-Sofie i [Auditorium 1](https://link.mazemap.com/pgCEfvHi).
     - **11:00-12:00** DNM95 og TAKk øver på *Even when he's silent* med Bjarne i [Auditorium 2](https://link.mazemap.com/zsiC6bkA).
     - **12:00-12:30** Alle øver på *Sangerhilsen* med Alejandro i Auditorium 2.
+    - Tildelingsseremoni for Den Norske Orden.
     - **12:30-13:20** Mennene øver på *Tromsøsangen og Olav Tryggvason* med Alejandro i Auditorium 2.
   - Etter øving går vi til Grønnåsen kirke. Det blir høve til å skifte til konsert-/gallaantrekk.
 - **14:00–14:30** Solemn akt i [Grønnåsen kirke](https://maps.app.goo.gl/dNJXiKsUZNdikSKv7).
